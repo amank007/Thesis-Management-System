@@ -1,0 +1,1 @@
+the portal offers a user-friendly interface with features such as progress tracking dashboards, secure document management etc. It facialiates students, faculty, administrators,Dean PG for submission of Thesis and other related documents. 
